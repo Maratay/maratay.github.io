@@ -1,1 +1,0 @@
-#maratay.github.io
